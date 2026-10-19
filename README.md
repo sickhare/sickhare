@@ -26,7 +26,7 @@ read my straw for info Ty.<img src="https://64.media.tumblr.com/fd2d8b992819bc6f
  
 - <sub>I change my shit a lot so I wouldn't blame you if you forgot who I am. the longest username I've kept was @illnurse, *I think*.</sub> 
  <div id="text" align="center">
-<img src="https://64.media.tumblr.com/6a0c314d5a7640d505a9218bf91d4a74/bb847320b634a8bc-b2/s100x200/e80a4ab5341abdcc81895dc84b2141f52ec9808c.gifv" alt="Pen" width="90" height="60"> <img src="https://64.media.tumblr.com/8472699951cad924cc92eb14df4bede2/bb847320b634a8bc-e1/s100x200/99d2b42f39a76f128881129f4fdc3412e4fab686.gifv" alt="Pen" width="100" height="60"> <img src="https://64.media.tumblr.com/c28aa22e08bcaac4497b444d1283cabc/bb847320b634a8bc-18/s100x200/9bacd155d300c2bd7d6cfab1bd8b1c1293c89a0e.gifv" alt="Pen" width="100" height="60"><br>
+<img src="https://64.media.tumblr.com/6a0c314d5a7640d505a9218bf91d4a74/bb847320b634a8bc-b2/s100x200/e80a4ab5341abdcc81895dc84b2141f52ec9808c.gifv" alt="Pen" width="90" height="60"> <img src="https://64.media.tumblr.com/8472699951cad924cc92eb14df4bede2/bb847320b634a8bc-e1/s100x200/99d2b42f39a76f128881129f4fdc3412e4fab686.gifv" alt="Pen" width="90" height="60"> <img src="https://64.media.tumblr.com/c28aa22e08bcaac4497b444d1283cabc/bb847320b634a8bc-18/s100x200/9bacd155d300c2bd7d6cfab1bd8b1c1293c89a0e.gifv" alt="Pen" width="90" height="60"><br>
 <b>1 <a href="https://github.com/alyotya">alyotya</a> .  2 <a href="https://github.com/KOMAHlNA">KOMAHlNA</a></b><br>
   <sub><a href="https://www.tumblr.com/luminousluxanna/819839310176157696/lohvar-pack-%E1%83%98-%E1%B0%8D-%E1%A3%9F-happy-pride-month?source=share">©</a></sub><br> 
  </div>
