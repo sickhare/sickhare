@@ -1,14 +1,16 @@
 <div id="text" align="center">
 
-⠀. ۫ ·<img src="https://64.media.tumblr.com/2b1e3ad6782edf00ee58b6fb0ba56562/5d2120c16f5a3112-e8/s100x200/05758d314ce95d4645cf75e1a41056dacd8d38a3.gifv" alt="Pen" width="20" height="20"><code>[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=17&duration=1500&pause=1000&color=88AFAE&width=141&height=26&lines=%E6%97%A9%E5%AF%9D%E3%80%80%E6%97%A9%E8%B5%B7%E3%81%8D%E3%80%80%F3%A0%81%AF%C2%B7%C2%B7%C2%B7;%E5%8B%89%E5%BC%B7%E3%80%80%E9%81%8B%E5%8B%95+%C2%B7%C2%B7%C2%B7;%E5%AB%8C%E3%81%84%E3%81%A7%E3%81%97%E3%82%87%E3%81%86%EF%BC%9F;%E3%81%AD%E3%81%88%E5%AB%8C%E3%81%84%E3%81%A7%E3%81%97%E3%82%87%E3%81%86%EF%BC%9F)](https://git.io/typing-svg)</code>͜𓏼✚𓈒
-
-<img src="https://64.media.tumblr.com/9c061253d50b6809b72ffc67dec084d1/fd9e5ce9a4eeaa8b-79/s540x810/c62aedea41600553bda135f109492518c0bacadd.gifv" width="230" alt="Description">
-
-<table width=“100” height=“100”><tr><td>
+ . ݁˖<img src="https://64.media.tumblr.com/f609dde3003f36dae36f66796bdeb61b/ead5930e3a19ca9e-e1/s500x750/f1caba524ce4081a818e2915d4ec4de652c2106a.gifv" alt="Pen" width="20" height="20"> <code>[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=16&duration=1500&pause=1000&color=FFE1B4&background=FDC7DFC9&width=138&height=30&lines=%E6%97%A9%E5%AF%9D%E3%80%80%E6%97%A9%E8%B5%B7%E3%81%8D%E3%80%80%F3%A0%81%AF%C2%B7%C2%B7%C2%B7;%E5%8B%89%E5%BC%B7%E3%80%80%E9%81%8B%E5%8B%95+%C2%B7%C2%B7%C2%B7;%E5%AB%8C%E3%81%84%E3%81%A7%E3%81%97%E3%82%87%E3%81%86%EF%BC%9F;%E3%81%AD%E3%81%88%E5%AB%8C%E3%81%84%E3%81%A7%E3%81%97%E3%82%87%E3%81%86%EF%BC%9F)](https://git.io/typing-svg)</code> ❤︎︵ ͜𓏼
+<td style="vertical-align: top;">
+  <img src="https://file.garden/Z4_uMXj5okOfzfmz/HO0SyXJbsAAAJ2jj.pg" alt="Pen" width="235" height="175">
+</td>
+<table width=“100” height=“100”>
+<td style="vertical-align: top;">
+  <div class="message">
  
  <img src="https://64.media.tumblr.com/cc7432c823a0278ee5f55a2bb54bcb77/bb847320b634a8bc-8b/s75x75_c1/ed72ba2f67731f647f8c941121f1a42065434b49.gifv" width="20" height="20" alt="Pen">
-<a href="https://mika.atabook.org">atabook</a>  <img src="https://64.media.tumblr.com/ed3a80abf78563381d6e3235113c8f88/2560c9d1d2d874bf-39/s75x75_c1/58474c364ce7b86798021ddb10c6a071dd471c26.gifv" width="20" height="20" alt="Pen">   <a href="https://anaxa.straw.page/">strawpage</a> 𓏻੭<br>
-read my straw for info Ty.<img src="https://64.media.tumblr.com/fd2d8b992819bc6fa142e68ac3d66d86/bb847320b634a8bc-3a/s75x75_c1/2fb178fe111f2777ff6fb545af11aa1ef7853fa0.gifv" width="20" height="20" alt="Pen">
+<a href="https://mika.atabook.org">atabook</a>  <img src="https://64.media.tumblr.com/e8459bd9ffb1a6ab583717c0c04e935a/ead5930e3a19ca9e-88/s500x750/6a37ac464f481b930f1a2ceb1f81678cc4dc71fa.gifv" width="20" height="20" alt="Pen">   <a href="https://anaxa.straw.page/">strawpage</a> 𓏻੭<br>
+<b>read</b> my straw for info Ty.<img src="https://64.media.tumblr.com/fd2d8b992819bc6fa142e68ac3d66d86/bb847320b634a8bc-3a/s75x75_c1/2fb178fe111f2777ff6fb545af11aa1ef7853fa0.gifv" width="20" height="20" alt="Pen">
 </td> </tr> </table>
 
  <details>
