@@ -2,7 +2,7 @@
 
  . ݁˖<img src="https://64.media.tumblr.com/f609dde3003f36dae36f66796bdeb61b/ead5930e3a19ca9e-e1/s500x750/f1caba524ce4081a818e2915d4ec4de652c2106a.gifv" alt="Pen" width="20" height="20"> <code>[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=16&duration=1500&pause=1000&color=FFE1B4&background=FDC7DFC9&width=138&height=30&lines=%E6%97%A9%E5%AF%9D%E3%80%80%E6%97%A9%E8%B5%B7%E3%81%8D%E3%80%80%F3%A0%81%AF%C2%B7%C2%B7%C2%B7;%E5%8B%89%E5%BC%B7%E3%80%80%E9%81%8B%E5%8B%95+%C2%B7%C2%B7%C2%B7;%E5%AB%8C%E3%81%84%E3%81%A7%E3%81%97%E3%82%87%E3%81%86%EF%BC%9F;%E3%81%AD%E3%81%88%E5%AB%8C%E3%81%84%E3%81%A7%E3%81%97%E3%82%87%E3%81%86%EF%BC%9F)](https://git.io/typing-svg)</code> ❤︎︵ ͜𓏼
 <td style="vertical-align: top;">
-  <img src="https://file.garden/Z4_uMXj5okOfzfmz/HO0SyXJbsAAAJ2jj.pg" alt="Pen" width="235" height="175">
+  <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled16_20261020225043.png" alt="Pen" width="235" height="175">
 </td>
 <table width=“100” height=“100”>
 <td style="vertical-align: top;">
