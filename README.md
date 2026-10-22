@@ -15,7 +15,6 @@
 
  <details>
         <summary>   💉 basics. </summary>
-  <img src="https://64.media.tumblr.com/312252264d828f7b26623f79c0a05eb3/bb847320b634a8bc-d9/s400x600/7032e7c7b6d37ed3c65fa8ac4fc9d16498ac41fa.pnj" alt="Pen" width="200" height="40"><br>
   
 - <sub> **Hit List**: <a href="https://github.com/hollow-cirque">zan</a>, <a href="https://github.com/embalmcinth">vik</a>, <a href="https://github.com/b0nelessgh0st">rei</a>, <a href="https://github.com/L0sst1meMemory">ren</a>......</sub><br>
 - <sub> No Explicit Dni criteria, I Hide freely. I may be annoying with my interests, I don't like to share some of my favorites. I love Mityosha and Lohen with a burning passion right now, if you gaf.</sub><br>
