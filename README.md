@@ -20,7 +20,7 @@
 </td>
 </tr>
 </table>
-𓈒 ˚ 𓏻 ‎<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=15&duration=1550&pause=1100&color=FFF3EB&background=857EBD45&width=180&height=25&lines=Dmitriy's+lurkers+%EF%B8%B5" alt="Typing SVG" /></a> <img src="https://komarev.com/ghpvc/?username=sickhare&color=8e8a9e&label=...𐂯" />۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱<br>
+𓈒 ˚ 𓏻 ‎<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&size=15&duration=1550&pause=1100&color=FFF3EB&background=857EBD45&width=180&height=25&lines=Dmitriy's+lurkers+%EF%B8%B5" alt="Typing SVG" /></a> <img src="https://komarev.com/ghpvc/?username=sickhare&color=8e8a9e&label=.𐂯" />۪𓈒 ຼ ͜𓐇˚ִִ𓈒꒱<br>
 <img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled25_20261028135626.png" width="290" height="10" alt="Description">  <br>
 <a href="https://mika.atabook.org"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled26_20261029033220.png" width="100" height="20" alt="Description"></a> <img src="https://file.garden/Z4_uMXj5okOfzfmz/lollipop" width="20" height="20" alt="Description"> <a href="https://anaxa.straw.page/"><img src="https://file.garden/Z4_uMXj5okOfzfmz/Untitled26_20261029032438.png" width="120" height="25" alt="Description"></a>
 </div></a>
